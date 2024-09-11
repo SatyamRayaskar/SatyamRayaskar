@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 - Virat is king
-- Gambhir Gandu
+- Gambhir is a coathc of indian team
 
 - hi i am shubahm
 
